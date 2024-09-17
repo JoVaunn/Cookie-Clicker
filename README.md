@@ -1,1 +1,1 @@
-# Cookie-Clicker
+# Major Games
